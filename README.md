@@ -18,7 +18,7 @@ Dashboard
 Portfolio
 https://nalwogaimmaculate3.wixsite.com/immy-1/home
 
-linkedIn
+LinkedIn
 www.linkedin.com/in/nalwoga-immaculate-ba6899318
 
 🙋‍♀️ About Me
